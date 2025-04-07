@@ -11,4 +11,4 @@ I am still fairly new to Github and coding in general, so bear with me as I will
 - Tiktok :  https://www.tiktok.com/@miles.originals?_t=ZN-8vkZmm722sQ&_r=1
 - Spotify : https://open.spotify.com/user/317hzasznidru4fzde6xaovdzari?si=1b8708236d864d18
 
-stay inspired ✨
+Stay inspired ✨
