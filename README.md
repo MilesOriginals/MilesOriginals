@@ -1,4 +1,4 @@
-## Hi ✨
+## Hello world ✨
 
 I'm Miles, an artist and youtuber who talks about art and tech among ohter things.
 I want to publish here my codes about projects I am working on to share with the community.
